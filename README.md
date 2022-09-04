@@ -1,2 +1,1 @@
-lgsus XD
-Rapa tu vida
+F
