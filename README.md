@@ -1,1 +1,2 @@
-# lgsus
+lgsus XD
+Rapa tu vida
